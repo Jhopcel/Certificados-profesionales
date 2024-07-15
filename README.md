@@ -1,2 +1,3 @@
 # Certificados profesionales
-[Certificados profesionales Duoc UC.pdf](https://github.com/user-attachments/files/16229260/Certificados.profesionales.Duoc.UC.pdf)
+
+![Certificados profesionales](https://github.com/user-attachments/assets/1509ea4f-3d8a-4cb2-9046-99161db38ef2)
